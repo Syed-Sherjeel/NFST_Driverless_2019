@@ -1,4 +1,4 @@
-[Documentation in Portuguese](https://github.com/Unicamp-E-Racing/driverless-2019/blob/master/README_PT.md)
+[Website](https://www.nustformulastudentteam.com/)
 
 # History
 
