@@ -1,7 +1,7 @@
 [Website](https://www.nustformulastudentteam.com/)
 
 # History
-
+NFST has established itself as pioneers of FS culture in the countrysince 2012. In 2014, the team won the ‘Most Effective Communication Strategy’ award in FSUK. It is the only team from  the  country  to  have  its  car  driven  on  the  prestigious  tracks  of  Silverstone  and Hockenheimringin 2015. In 2019, the team achieved the 10thpositionin the Business Plan Presentation Event and an overall position of 40 in FSUK 2019.The team wasalso ranked first among Asian Regional Rankingsin 2019.
 
 
 
