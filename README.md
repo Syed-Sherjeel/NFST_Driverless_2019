@@ -3,7 +3,11 @@
 # History
 NFST has established itself as pioneers of FS culture in the countrysince 2012. In 2014, the team won the ‘Most Effective Communication Strategy’ award in FSUK. It is the only team from  the  country  to  have  its  car  driven  on  the  prestigious  tracks  of  Silverstone  and Hockenheimringin 2015. In 2019, the team achieved the 10thpositionin the Business Plan Presentation Event and an overall position of 40 in FSUK 2019.The team wasalso ranked first among Asian Regional Rankingsin 2019.
 
+# Season 2019/2020   
+The team participated in FSUK Virtual 2020, and achieved an overall position of 7th, securing 3rdposition  in Design  and Acceleration  Event  and 10thposition inCostand SustainabilityEvent.Future:The team’s ultimate aimis to build a better future in Pakistan through promoting science and technology  by  building  the  best  team  and  the  best  cars,  and  trying  to  incline  the  country towards an entrepreneurship model.
 
+# Future
+The team has recognized a shift towards autonomous technology throughout the globe and has laid plans to build a driverless vehicle within the next three years. A research department has been set up to achieve this goal with the members learning specifically about autonomous technology and developing further plans. Moreover,  having  gained  immense  experience  from  being  consistent  in  participating  in  FS competitions, the team has become acutely aware of the strong need of promoting science and technology as prime values for the development of the Pakistani society, and it recognizes the bridge that currently exists between the educational and industrial sectors of the country. To do its part for the society, the team has launched a Scientific Society campaign that aims to encourage students to take part in projects as well as making them aware of global shifts in science and technology
 
 # Philosophy
 
